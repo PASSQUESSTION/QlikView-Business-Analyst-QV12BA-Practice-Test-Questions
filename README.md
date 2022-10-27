@@ -1,0 +1,1 @@
+# QlikView-Business-Analyst-QV12BA-Practice-Test-Questions
